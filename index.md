@@ -78,7 +78,7 @@ Pentru orice nelămurire, puteți contacta “România Uimitoare” la adresa de
 
 andreipascale2000@gmail.com
 
-##### Ultima modificare: 5 septembrie 2018
+##### Ultima modificare: 1 aprilie 2021
 
 # [EN] Privacy Policy of Wonderful Romania application
 
@@ -158,4 +158,4 @@ For any questions, you can contact “România Uimitoare” at:
 
 andreipascale2000@gmail.com
 
-Last change: September 5, 2018
+Last change: April 1st, 2021
